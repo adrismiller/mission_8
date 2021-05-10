@@ -1,8 +1,8 @@
 # Mission 8: Hakuna Fermata 
 
-## Barbie as a Pomodoro Video
+## Barbie: a Pomodoro Experience
 
-My piece is titled "Barbie as a Pomodoro Video" because as I started to finalize the music, it began to remind of of the sparkly, mystical music that often plays in the beginning of an animated Barbie movie (such as Barbiee as the Princess and the Pauper or Barbie as Rapunzel." This video isn't actually a Pomdoro study video, but the combination of music and nature reminded me of Pomodoro study videos, and I thought it would be a fun name. 
+My piece is titled "Barbie: A Pomodoro Experience" because as I started to finalize the music, it began to remind of of the sparkly, mystical music that often plays in the beginning of an animated Barbie movie (such as Barbie as the Princess and the Pauper or Barbie as Rapunzel." This video isn't actually a Pomdoro study video, but the combination of music and nature reminded me of Pomodoro study videos, and I thought it would be a fun name. 
 
 
 A common part of the songs I enjoy studying or relaxing to are that they are fairly repetitive, but change and are surprising at times. This was one of the major ideas behind my piece. I kept a very similar pattern and chord structure throughout my piece, and altered it to create variety and more of a story. 
