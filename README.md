@@ -1,6 +1,6 @@
 # Mission 8: Hakuna Fermata 
 
-## My Piece
+## My Piece: ADD NAME
 
 A common part of the songs I enjoy studying or relaxing to are that they are fairly repetitive, but change and are surprising at times. This was one of the major ideas behind my piece. I kept a very similar pattern and chord structure throughout my piece, and altered it to create variety and more of a story. 
 
